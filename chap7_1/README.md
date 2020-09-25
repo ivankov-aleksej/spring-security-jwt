@@ -1,0 +1,1 @@
+![Alt text](img/series-7-1-min.jpg)
